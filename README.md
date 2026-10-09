@@ -9,7 +9,7 @@
   
   <div align="center">
 
-[pt info](https://rentry.co/hisbloodinthesnow)　　[straw](https://illrotinthesnow.straw.page)　　[prnspage](https://en.pronouns.page/@illrotinthesnow)　　[ata](https://illrotinthesnow.atabook.org)
+[pt info](https://rentry.co/hisbloodinthesnow)　　interests wip　　[ata](https://illrotinthesnow.atabook.org)　　[luvmail](https://rentry.co/travsluvmail)
 </div>
 <p align="center"><img width="750" height="30" alt="image" src="https://file.garden/Z3wkAgI9XxDVyD_q/Untitled1_20260905212954.png" />
 <p align="center">$\color{#C2384E}{\textsf{ special mentions　　(*´▽`*) }}$
