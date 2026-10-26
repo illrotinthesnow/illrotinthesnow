@@ -4,7 +4,7 @@
  
 <p align="center"><img width="750" height="450" alt="image" src="https://file.garden/aq_Wvw8cibtOL7Ps/deivy.png" />
 
-<p align="center">$\color{#c04965}{\textsf{ iwec　♡　semi verbal　♡　mostly offtab w2i    }}$
+<p align="center">$\color{#c04965}{\textsf{ iwec + iayor　♡　semi verbal　♡　mostly offtab w2i    }}$
 <p align="center">$\color{#f8e9d7}{\textsf{ 　　basic dni　　﹕　　open 2 chat!　　﹕　　free 2 friend　　  }}$
 <p align="center">$\color{#c04965}{\textsf{ ♡ }}$
 
