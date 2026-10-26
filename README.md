@@ -7,8 +7,6 @@
 <p align="center">$\color{#c04965}{\textsf{ iwec　♡　semi verbal　♡　mostly offtab w2i    }}$
 <p align="center">$\color{#f8e9d7}{\textsf{ 　　basic dni　　﹕　　open 2 chat!　　﹕　　free 2 friend　　  }}$
 <p align="center">$\color{#c04965}{\textsf{ ♡ }}$
-  
-  <div align="center">
 
 <p align="center">$\color{#f8e9d7}{\all links undergoing wip, sorry!}}$
 
