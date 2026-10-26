@@ -12,7 +12,7 @@
 
 </div>
 <p align="center"><img width="750" height="30" alt="image" src="https://file.garden/Z3wkAgI9XxDVyD_q/Untitled1_20260905212954.png" />
-<p align="center">$\color{#C2384E}{\textsf{ special mentions　　(*´▽`*) }}$
+<p align="center">$\color{##c04965}{\textsf{ special mentions　　(*´▽`*) }}$
 
   <div align="center">
   
