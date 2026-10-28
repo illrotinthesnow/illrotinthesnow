@@ -8,7 +8,9 @@
 <p align="center">$\color{#f8e9d7}{\textsf{ 　　basic dni　　﹕　　open 2 chat!　　﹕　　free 2 friend　　  }}$
 <p align="center">$\color{#c04965}{\textsf{ ♡ }}$
 
-<p align="center">$\color{#c04965}{\textsf{all links undergoing wip, srry!}}$
+  <div align="center">
+
+[straw](https://illrotinthesnow.straw.page) 　ata soon
 
 </div>
 <p align="center"><img width="750" height="30" alt="image" src="https://file.garden/Z3wkAgI9XxDVyD_q/Untitled1_20260905212954.png" />
