@@ -18,6 +18,6 @@
 
   <div align="center">
   
-[@veiledanchor](https://github.com/veiledanchor)　　[@sleepytimey](https://github.com/sleepytimey)　　[@WhispyVibez](https://github.com/WhispyVibez)　　[@VilLeynn](https://github.com/VilLeynn)　　[@cometcarnage](https://github.com/cometcarnage)　　[@SUBSP4CE](https://github.com/SUBSP4CE)　
+[@sleepytimey](https://github.com/sleepytimey)　　[@WhispyVibez](https://github.com/WhispyVibez)　　[@VilLeynn](https://github.com/VilLeynn)　　[@cometcarnage](https://github.com/cometcarnage)　　[@SUBSP4CE](https://github.com/SUBSP4CE)　
 </div>
 <p align="center">$\color{#f8e9d7}{\textsf{ +　 my other oomfs :-) }}$
