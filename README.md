@@ -10,7 +10,7 @@
 
   <div align="center">
 
-[straw](https://illrotinthesnow.straw.page) 　ata soon
+[straw](https://illrotinthesnow.straw.page) 　[artworks](https://delusionaldescension.straw.page/home) 　ata soon
 
 </div>
 <p align="center"><img width="750" height="30" alt="image" src="https://file.garden/aq_Wvw8cibtOL7Ps/div.png" />
